@@ -4,7 +4,7 @@ Even if you could think procrastination is useless don't you think you need time
 
 I mean just imagine, if you never procrastinate, if you are always doing like metro work sleep, don't you think it can have very bad aspect for your mental health ?
 
-And even if procrastination can be considered as a thing that is useless, they are several ways to procrastinate a
+And even if procrastination can be considered as a thing that is useless, they are several ways to procrastinate and working an a thing. For example, video games. Several people will think there is no good aspect of it, it's just procrastination. But there are scientific studies that show that people who play video games have  
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMjEyNTAzMTUxOV19
+eyJoaXN0b3J5IjpbLTU5MTIxMjAwNl19
 -->
