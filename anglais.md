@@ -1,4 +1,7 @@
-I have selected the topic "Why procrastination is essential for survival"
+I have selected the topic "Why procrastination is essential for survival" and the "drapper principle"
+
+I might:
+- 
 
 
 ## Why procrastination is essential for survival ?
@@ -9,5 +12,5 @@ I mean just imagine, if you never procrastinate, if you are always doing like me
 
 And even if procrastination can be considered as a thing that is useless, they are several ways to procrastinate and working an a thing. For example, video games. Several people will think there is no good aspect of it, it's just procrastination. But there are scientific studies that show that people who play video games are more able to have a better and longer concentration than the others. 
 <!--stackedit_data:
-eyJoaXN0b3J5IjpbMzU1MzYxMzA5XX0=
+eyJoaXN0b3J5IjpbLTIxMDU3ODk3ODhdfQ==
 -->
